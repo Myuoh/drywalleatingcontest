@@ -1,2 +1,0 @@
-# drywalleatingcontest
-drywall eating contest
